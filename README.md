@@ -1,2 +1,0 @@
-# ainsleylaing.github.io
-Website
